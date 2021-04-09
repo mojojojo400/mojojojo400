@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @mojojojo400
+- 👀 I’m interested in Crypto
+- 📫 How to reach me mojo_jojo400@protonmail.com
